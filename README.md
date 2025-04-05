@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SushmaSri-R
 - 👀 I’m interested in creating web-sites
 - 🌱 I’m currently learning to become an entrepreneur
-- 💞️ I’m looking to collaborate on creating web-sites
+- 💞️ I’m looking to collaborate on creating web-pages
 - 📫 How to reach me by reading my portfolio
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
